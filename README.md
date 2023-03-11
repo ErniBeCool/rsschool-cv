@@ -1,1 +1,1 @@
-https://ernibecool.github.io/rsschool-cv/cv
+https://ernibecool.github.io/rsschool-cv/
